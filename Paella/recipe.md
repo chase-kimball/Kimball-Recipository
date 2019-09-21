@@ -1,4 +1,4 @@
-# Original Recipe/Source
+# Source
 [Daniel Gritzer's Grilled Paella](https://www.seriouseats.com/recipes/2019/07/grilled-paella-mixta-mixed-paella-with-chicken-and-seafood.html)
 
 ## 09/20/2019 Murray & Dad's Birthday Paella (Bryan/Chase)
