@@ -6,9 +6,9 @@
 
 * No dried peppers/chilies
 * ~Double recipe of sofrito
-
-   Cooked down to a jam
-* 3 cups of rice instead of 2
+ *Cooked down to a jam
+* 3 cups of rice instead of 2.5
+ *Same amount of other liquids because of extra sofrito
 * Subbed extra chicken and 12 oz. chorizo for pork tenderloin
 * No clams
 
