@@ -8,6 +8,6 @@ What it sounds like
 
 ### Results
 
-Comments and links to images
+Comments and [links to images](Images/food.png)
 
 
