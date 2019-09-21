@@ -1,3 +1,3 @@
-# Kimball-Recipetository
+# Recipository
 
-Repository for storing, tracking, and improving Kimball-family cooking endeavors
+Repository for storing, tracking, and improving the cooking endeavors of Kimball family and friends
