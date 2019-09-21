@@ -1,7 +1,7 @@
 # Original Recipe/Source
 [Daniel Gritzer's Grilled Paella](https://www.seriouseats.com/recipes/2019/07/grilled-paella-mixta-mixed-paella-with-chicken-and-seafood.html)
 
-## 09/20/2019 Murray & Dad's Birthday Paella
+## 09/20/2019 Murray & Dad's Birthday Paella (Bryan/Chase)
 ### Adjustments
 
 * No dried peppers/chilies
@@ -19,5 +19,5 @@
 
 ### Results
 
-* Awesome. Undersalted when adding the stock but easily fixed in post-production.
+* Awesome. Undersalted when adding the stock but easily fixed in post.
 
