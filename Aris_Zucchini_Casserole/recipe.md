@@ -1,5 +1,4 @@
 # Courtesy of The Light-Bringer
-From-scratch recipe or url of source
 
 8 medium zucchini. Preferably Gray squash. Grated on large holes of box grater.
 
@@ -22,7 +21,7 @@ black pepper
 3. Add eggs, ~6 oz of feta, olive oil, oregano, thyme, 1 tsp salt, and black pepper to shredded zucchini and mix. 
 4. Mix in flour bit by bit until it desired consistency is reached. See picture
 5. Add mixture to greased 9x13 pan, crumble remaining feta over top with a drizzle of olive oil, and bake at 40 minutes at 370 F
-## 11/27/2019 THANKSGIVING EVE
+## 11/28/2019 THANKSGIVING
 ### Adjustments
 
 Everthing not reflected in the above recipe 
