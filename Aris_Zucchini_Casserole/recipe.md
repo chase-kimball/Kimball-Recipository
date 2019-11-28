@@ -1,14 +1,22 @@
 # Courtesy of The Light-Bringer
 From-scratch recipe or url of source
 
-8 medium zucchini. Preferably Gray squash. Grated on large holes of box grater. \\
+8 medium zucchini. Preferably Gray squash. Grated on large holes of box grater.
+
 3 Eggs
+
 8 oz Feta Cheese. Clarify with L.B. whether he means Goat cheese or Feta cheese, which is technically from a sheep
+
 1/4 cup Extra virgin olive oil
+
 1-2 tsp fresh thyme
+
 Not alot of oregano
+
 1/2 cup + a pinch of flour
+
 black pepper
+
 1. Place zucchini in a colander and add ~1 tbsp of salt. Mix and let sit/drain for 20 minutes
 2. Squeeze the remaining water out of the zucchini
 3. Add eggs, ~6 oz of feta, olive oil, oregano, thyme, 1 tsp salt, and black pepper to shredded zucchini and mix. 
