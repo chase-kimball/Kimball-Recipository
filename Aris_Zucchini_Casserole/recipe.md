@@ -1,7 +1,7 @@
 # Courtesy of The Light-Bringer
 From-scratch recipe or url of source
 
-8 medium zucchini. Preferably Gray squash. Grated on large holes of box grater.
+8 medium zucchini. Preferably Gray squash. Grated on large holes of box grater. \\
 3 Eggs
 8 oz Feta Cheese. Clarify with L.B. whether he means Goat cheese or Feta cheese, which is technically from a sheep
 1/4 cup Extra virgin olive oil
