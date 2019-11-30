@@ -16,14 +16,5 @@ Extra virgin olive oil
 6. Salt to taste
 
 ## 11/27/2019 THANKSGIVING EVE
-### Adjustments
-
-Everthing not reflected in the above recipe 
-### Notes
-
-What it sounds like
-### Results
-
-Comments and [links to images](Images/food.png)
-
+ 
 
