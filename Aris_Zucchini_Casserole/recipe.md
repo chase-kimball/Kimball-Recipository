@@ -32,7 +32,6 @@ LB assures us that foaming in the zucchini when mixing in the salt is normal. We
 
 LB said the mixture was on the wetter side this time around
 ### Images
-
+![Squeezing](Images/Squeezing.jpg)
 ![Consistency](Images/Consistency.jpg)
-
-
+![Finished](Images/Finished.jpg)
