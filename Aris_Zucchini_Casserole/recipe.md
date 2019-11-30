@@ -10,7 +10,7 @@
 
 1-2 tsp fresh thyme
 
-Not alot of oregano
+Pinch of oregano
 
 1/2 cup + a pinch of flour
 
