@@ -1,6 +1,6 @@
 # Courtesy of The Light-Bringer
 500g whole fat greek yogurt
-3 cucumbers, peeled and grated through large wholes of box grater
+3 cucumbers, peeled and grated through large holes of box grater
 3-4 large cloves garlic, grated on microplane
 1-2 tablespoons minced fresh dill
 apple cider vinegar
